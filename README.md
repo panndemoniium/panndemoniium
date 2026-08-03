@@ -2,7 +2,7 @@
 
 🪓 hello hello!!  
 
-🪓 call me kitt, toby, or robin
+🪓 call me kitt, toby, or rory !
 
 🪓 fixated on the slenderverse atm (mh, emh, creepypasta, etc)
 
@@ -13,4 +13,3 @@
   [💀 strawpage!!](https://panndemoniium.straw.page/)  
 	[💀 tiktok!](https://www.tiktok.com/@pan_demoniium)  
 	[💀 insta !](https://www.instagram.com/pan.demoniium)  
-	 💀 my discord user is pan.demoniium
