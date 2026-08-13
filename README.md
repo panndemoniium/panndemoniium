@@ -7,3 +7,5 @@
 <p align="center">🪓 fixated on the slenderverse atm (mh, emh, creepypasta, etc)
 
 <p align="center"> <img width="367" height="251" alt="art by yokomeru" src="https://github.com/user-attachments/assets/ba21ce3b-f67e-4396-b2b9-1ff2b6f35364" />
+
+WIP page :P
