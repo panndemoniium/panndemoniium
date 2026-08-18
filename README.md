@@ -1,8 +1,71 @@
+---
+<img src="https://files.catbox.moe/6yn7f1.png" width="500" align="right">
 
-<p align="center">🪓 hello hello!!  
+<div align="left">
+ 
+${\textsf{\color{#9E8A86}Ი𐑼}}$
+${\textsf{\color{#9E8A86}kitt}}$
+${\textsf{\color{#9E8A86}/}}$
+${\textsf{\color{#9E8A86}rory}}$
+${\textsf{\color{#9E8A86}/}}$
+${\textsf{\color{#9E8A86}toby}}$
 
-<p align="center">🪓 call me kitt, toby, or rory !
+<div align="center">
+<br><br>
 
-<p align="center">🪓 fixated on the slenderverse atm (mh, emh, creepypasta, etc)
+${\textsf{\color{#9E8A86}Ი𐑼 }}$
+${\textsf{\color{#9E8A86}they}}$
+${\textsf{\color{#9E8A86}/}}$
+${\textsf{\color{#9E8A86}it}}$
 
-<p align="center">WIP page :P
+<div align="left">
+<br><br>
+
+${\textsf{\color{#9E8A86}7teen}}$
+${\textsf{\color{#9E8A86}Ი𐑼}}$
+${\textsf{\color{#9E8A86}aroace}}$
+
+<div align="center">
+<br><br>
+
+${\textsf{\color{#9E8A86}Ი𐑼 }}$
+${\textsf{\color{#9E8A86}auDHD}}$
+${\textsf{\color{#9E8A86}/}}$
+${\textsf{\color{#9E8A86}OCD}}$
+${\textsf{\color{#9E8A86}/}}$
+${\textsf{\color{#9E8A86}GAD}}$
+
+<br><br>
+<div align="left">
+
+</div>
+
+<div align="right">
+
+</div>
+
+<div align="center">
+
+
+<img width="400" height="40" alt="image" src="https://github.com/user-attachments/assets/2181d6fb-a139-4b59-a716-f0a2b21ae57e" />
+
+---
+
+<p align="center">
+  <a href="https://pandemoniium.atabook.org/">
+    <img src="https://img.shields.io/badge/Ი𐑼%20Atabook-9E8A86?style=for-the-badge&logoColor=white">
+  </a>
+  <a href="https://panndemoniium.straw.page">
+    <img src="https://img.shields.io/badge/Ი𐑼%20Strawpage-9E8A86?style=for-the-badge&logoColor=white">
+  </a>
+<a
+
+<div align="center">
+
+<a href="https://pronouns.cc/@pan.demoniium">
+<img src="https://img.shields.io/badge/Ი𐑼%20pronouns.cc-9E8A86?style=for-the-badge&labelColor=9E8A86&color=9E8A86">
+</a>
+
+</div>
+<img width="2046" height="186" alt="image" src="https://github.com/user-attachments/assets/e83754bf-211a-4944-b880-dbf9b0757479" />
+
