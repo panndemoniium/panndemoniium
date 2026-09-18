@@ -62,7 +62,7 @@ ${\textsf{\color{#9E8A86}GAD}}$
 
 <div align="center">
 
-<a href="https://pronouns.cc/@pan.demoniium">
+<a href="https://pronouns.cc/@panndemoniium">
 <img src="https://img.shields.io/badge/Ი𐑼%20pronouns.cc-9E8A86?style=for-the-badge&labelColor=9E8A86&color=9E8A86">
 </a>
 
