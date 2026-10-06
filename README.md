@@ -66,6 +66,7 @@ ${\textsf{\color{#9E8A86}GAD}}$
 <img src="https://img.shields.io/badge/Ი𐑼%20pronouns.cc-9E8A86?style=for-the-badge&labelColor=9E8A86&color=9E8A86">
 </a>
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31pysisputmtbzhyslj2mommfk2a&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=944b33&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
 </div>
 <img width="2046" height="186" alt="image" src="https://github.com/user-attachments/assets/e83754bf-211a-4944-b880-dbf9b0757479" />
-
