@@ -52,7 +52,7 @@ ${\textsf{\color{#9E8A86}GAD}}$
 ---
 
 <p align="center">
-  <a href="https://pandemoniium.atabook.org/">
+  <a href="https://panndemoniium.atabook.org/">
     <img src="https://img.shields.io/badge/Ი𐑼%20Atabook-9E8A86?style=for-the-badge&logoColor=white">
   </a>
   <a href="https://panndemoniium.straw.page">
